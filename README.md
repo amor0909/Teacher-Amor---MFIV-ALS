@@ -1,1 +1,0 @@
-# Teacher-Amor---MFIV-ALS
